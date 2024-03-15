@@ -64,3 +64,15 @@ level 20
 ---
 Husband becomes the new target.
 Or Friend or Wife, depending on play through.
+
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(67).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(68).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(69).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(70).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(71).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(72).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(73).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(74).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(75).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(76).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(77).jpg" width="100%"></img>
