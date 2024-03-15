@@ -4,7 +4,9 @@ Kill Mommy is a new quatum reality simulation game. You wake up in bed each leve
 level 1 
 ---
 You wake up in Bed.
-A woman yells in the distance:
+You are in a tiny house.
+
+A woman yells in the distance from a tiny room:
 
 Do the Laundry!
 
