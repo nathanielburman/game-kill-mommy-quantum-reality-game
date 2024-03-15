@@ -65,6 +65,22 @@ level 20
 Husband becomes the new target.
 Or Friend or Wife, depending on play through.
 
+level 25
+---
+You wake up in a giant castle.
+Your MOMMY is an evil queen in a castle.
+
+level 30
+---
+You level up and become a Parent yourself.
+You wake up from the curse.
+
+YOu have to fight the final boss.
+The final final boss.
+
+
+
+
 <img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(67).jpg" width="100%"></img>
 <img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(68).jpg" width="100%"></img>
 <img src="https://github.com/nathanielburman/game-kill-mommy-quantum-reality-game/blob/main/dream_TradingCard%20(69).jpg" width="100%"></img>
